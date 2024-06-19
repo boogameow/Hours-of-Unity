@@ -1,2 +1,2 @@
 # Hours-of-Unity
-too peak
+hour 6 has the battle bus fyi
